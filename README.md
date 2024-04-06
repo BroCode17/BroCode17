@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **efrimpong@springfieldcollege.edu**
 
-- 📄 Know about my experiences [https://efrimpong.com/static/media/resume.1c904d58cbfa91598bf8.pdf](https://efrimpong.com/static/media/resume.1c904d58cbfa91598bf8.pdf)
+- 📄 Know about my experiences [resume](https://efrimpong.com/static/media/resume.1c904d58cbfa91598bf8.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
